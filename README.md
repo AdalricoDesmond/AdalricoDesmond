@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @AdalricoDesmond
+- 👀 I’m interested in Coding and AI
+- 🌱 I’m currently learning how to write Phyton
+- 📫 How to reach me: adalricodesmond@gmail.com
+- 😄 Pronouns: He/Him
